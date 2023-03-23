@@ -1,2 +1,1 @@
-# Curso-
-Curso para mejorar 
+Haremos este curso para obtener mas conocimentos 
